@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @krupananda4
 - 👀 I’m interested in Data Science and Analytics 
-- 📫 How to reach me ph: 7019225697
+- 📫 How to reach me ph: +44 07770670223
 
 <!---
 krupananda4/krupananda4 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
